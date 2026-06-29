@@ -1,4 +1,4 @@
-#  
+#  hidden Script for blade ball offers the most advanced blade ball Script, with one-hit kill and god mode. Perfect for dominating any match.
 
 
 
